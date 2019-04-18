@@ -14,7 +14,6 @@ I am currently a Ph.D. student in the Erickson Lab at the Sibley School of Mecha
 
 In addition to the Forbes recognition, I was also selected as a member of the EarthX 30 Under 30: The Green Generation by the American Conservation Coalition, a member of the AACYF Top 30 under 30 – Class of 2019 Elites in “Art, Culture, Science”, as well as a 2018-2019 Local Pathways Fellow (LPS) by the UN Sustainable Development Solutions Network – Youth Initiative (SDSN Youth). I’m also participating in a team that has won the $20K Grand Prize in 2017 “Create the Future” Design Contest. 
 
-Before joining Cornell, I received my Master’s degree from McGill (2014-2016) with joint training by the Massachusetts Institute of Technology (2015-2016). I received dual bachelor’s degree (B.Eng. in Energy & Power Engineering; & B.A. English Language & Literature) from the ‘Tsien Hsue-Shen’ Elite Class of Xi’an Jiaotong University in 2013
+Before joining Cornell, I received my Master’s degree from McGill (2014-2016) with joint training by the Massachusetts Institute of Technology (2015-2016). I received dual bachelor’s degree (B.Eng. in Energy & Power Engineering; & B.A. English Language & Literature) from the ‘Tsien Hsue-Shen’ Elite Class of Xi’an Jiaotong University in 2013.
 
 I have recently published work in Fuel, Int. J. Hydrog. Energy, Anal. Chem., Fuel Process. Technol., ISIJ Int., and Metall Mater Trans B, and am a reviewer for several journals including Energy Convers. Manag, Int. J. Hydrog. Energy, Metall Mater Trans B, etc.
-
